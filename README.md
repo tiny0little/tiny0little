@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @tiny0little
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning Dart and Flutter
-- contact me via nromensky <§> gµåil <dot> cøm
+- contact me via nromensky § gµåil • cøm
