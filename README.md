@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @tiny0little
 - 👀 I’m interested in informatics
-- if I helped you, please consider buying me a cup of tea via donation some CHIA to xch1uuqg8l4g3yqnrg8pglgvnurnuhunn28hrv4r850efw60c7nv206qzz7avu
-- 
+- if I helped you, please consider buying me a cup of tea via donation some CHIA to xch1uuqg8l4g3yqnrg8pglgvnurnuhunn28hrv4r850efw60c7nv206qzz7avu 
