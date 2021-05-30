@@ -2,4 +2,3 @@
 - did I help you? please consider buying me a cup of tea
   - XCH: xch1dlmg4cu4tkt50mq4qrx9lk8cqcfwgcawjd3napgs7558t04z3spq65058d
   - XMR: 48drAB9VSusNCXareu6gMXeS9MTCUujercmadwaxy15bhbaQTDWuiiG5p6dxgaMkTuitr17EA4H9B7wU6eboVL53HgiRUfn
-  - BTC: BC1QU0JRWC3FD0PG5EZ87H9UQCXHJEZVNFPM6TP4D4
