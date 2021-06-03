@@ -1,4 +1,1 @@
 - I’m interested in informatics
-- did I help you? please consider buying me a cup of tea
-  - XCH: xch1025c3vw23lg78t40zeg4aryh8s42wqq9kgygc7qu09egmq8lnfksk4mcyy
-  - XMR: 48drAB9VSusNCXareu6gMXeS9MTCUujercmadwaxy15bhbaQTDWuiiG5p6dxgaMkTuitr17EA4H9B7wU6eboVL53HgiRUfn
